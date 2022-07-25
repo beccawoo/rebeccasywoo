@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rebeccasywoo
+- 👋 Hi, I’m @beccawoo
 - 👀 I’m interested in UX and UI design, gaming, and education!
 - 🌱 I’m currently learning UX and graphic design~
 - 💞️ I’m looking to collaborate on any feasible project!
